@@ -1,2 +1,2 @@
 ## Greetings
-This is not my primary account, so dont expect anything special.
+I am nobody special. Not doing anything special.
